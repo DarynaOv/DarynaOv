@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @DarynaOv
+- 👀 I’m interested in everything
+- 🌱 I’m currently learning cybersecuirity
